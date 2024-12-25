@@ -1,0 +1,2 @@
+# Friend.best
+Welcome 
